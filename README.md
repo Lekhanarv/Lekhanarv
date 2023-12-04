@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lekhanarv
-- 👀 I’m interested in completing my studies
+- 👀 I’m interested completing my goals 
 - 🌱 I’m currently learning mca
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
